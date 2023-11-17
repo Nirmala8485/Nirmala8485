@@ -1,1 +1,1 @@
-- 📫 Hi I am Nirmala Currently I’m hiring for Senior Infrastructure Team Lead/Engineer- 📫
+- 📫 Hi I am Nirmala from Tribehired. Currently I’m hiring for Senior Infrastructure Team Lead/Engineer- 📫
